@@ -2,4 +2,4 @@
 
 Люблю осень во всех её проявлениях. Например, прогулки под дождём вдохновляют на новые жизненные подвиги. А особый кайф доставляет наблюдать в окно за спешащими прохожими, пить горячий сладкий чай, закутавшись в тёплый плед. 
 
-![XK0IWlSR2pxqNnuPX9p2NeMB5jYjNbNc4ZyVx82oUqAPHcz5vjvLKGZTUDwvCWFDKbfGTeVMZkx4u1gRrm9jlABs](https://user-images.githubusercontent.com/121941801/211584663-86376b95-98d5-414d-bbce-0d8035189132.jpg)
+![2J63cLzjxenyd5dY4mRyWnAVSb3VWntZCb2_3ms3Mpw5Ysmkb9uRFxEFhPJEfp-04b_3DfjWIL_9jdze8LGq6BrN](https://user-images.githubusercontent.com/121941801/211597358-67d04b44-92ad-46f7-b7d6-aabb02bc1edf.jpg)
